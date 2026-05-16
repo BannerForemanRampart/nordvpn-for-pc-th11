@@ -1,4 +1,4 @@
-# 
+# Enhance NordVPN for PC | NordVPN for Windows with updated NordVPN for PC | NordVPN for Windows Helper | no-logs-policy + server-locations, the #1 helper. Includes no-logs-policy
 
 
 
